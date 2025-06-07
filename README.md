@@ -1,0 +1,2 @@
+# CORP.E-virus-
+CORP.E [virus]. PLS, OPEN ONLY ON VIRTUAL MACHINE
